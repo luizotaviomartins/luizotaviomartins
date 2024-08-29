@@ -8,4 +8,4 @@ Estou no GitHub principalmente para as seguintes ações:
   Para entrar em contato comigo acesse:
    @luiizz_martins📷
 
- ![]( https://th.bing.com/th/id/OIP.CXghxuhzfbKmAffMBOSx7gAAAA?rs=1&pid=ImgDetMain)
+ ![](https://th.bing.com/th/id/R.b8ab628a1603f623da68ee5c379ebed0?rik=Wm7GOCsVDBn5%2bw&pid=ImgRaw&r=0)
